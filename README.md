@@ -6,7 +6,7 @@
 ✧Also edit n cosplay
 ✧(Insta @electrified.strings) (Tiktok @.bumi)   
 
-✦About IDV✦
+✦About IDV✦     
 ✧!! I would really love to play idv and talk on vc with someone to improve my english, if interested interact please !!✧
 ✧My ID is 12280498, if u wanna add me tell me so i know who u are
 ✧Prisoner main | Violinist main✧ 

@@ -17,5 +17,5 @@
 ✦Ingame interactions✦    
 ✧Yess if alone (online status)   
 ✧Whisper me if (away status) prob playing or AFK   
-✧If (busy status) im w friends so dni if we dont do it first   
+✧If (busy status) im w friends so dni if we dont do it first; if is (online) even w friends go ahead u can int 
 

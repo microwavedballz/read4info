@@ -1,4 +1,4 @@
-✦Bumi | Luca✦  
+✦Names Bumi!!  
 ✦♀, Character pronouns!!✦
 
 ✦About me✦       

@@ -1,4 +1,4 @@
-NAMES BUMI!! (or character name btw
+NAMES BUMI!! (or character name btw                             
 Character pronouns yass
 
 Sometimes edits-cosplay                    

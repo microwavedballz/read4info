@@ -1,10 +1,10 @@
-✦Names Bumi!!  
-✦♀, Character pronouns!!✦
+NAMES BUMI!! (or character name btw
+Character pronouns yass
 
-✦About me✦       
-✧Sometimes edits-Cosplay                    
-✧(Tiktok @.bumi)   
+Sometimes edits-cosplay                    
+(Tiktok @.bumi)   
  
-✦Ingame interactions✦                               
-✧Interact but dont spam like boops or emotions please                            
-✧Whisper me if (away status) prob playing or AFK !!! 
+✦Ingame interactions✦                                                         
+Whisper me if (away status) prob trying to put deez nuts in yo mouth🙄🙄
+
+succhiatemi le palle🔥🔥
